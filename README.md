@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Faiqueee
-- 👀 I’m interested in science
+- 👀 Interested in science of everything
 - 🌱 I’m currently learning computer science
 - 📫 How to reach me --> fhadi9870@gmail.com
 - ⚡ Fun fact: The Pacu fish from South America has human-like teeth. Yeah, stuff of nightmares.
